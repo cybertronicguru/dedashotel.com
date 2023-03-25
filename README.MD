@@ -1,1 +1,1 @@
-# dedashotel.com
+# dedashotel.com  THE OFFICIAL WEBSITE OF DEDAS HOTELS
